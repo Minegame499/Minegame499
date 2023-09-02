@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Minegame499
+- 👀 I’m interested in Minecraft gaming and hardware ! 
+- 🌱 I’m currently learning Java and JavaScript
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me 
